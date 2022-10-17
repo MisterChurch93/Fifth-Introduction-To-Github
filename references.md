@@ -1,3 +1,3 @@
 # References
 
-* yellow pages 😈
+yellow pages 😈
